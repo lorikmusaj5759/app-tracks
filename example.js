@@ -1,0 +1,1 @@
+Sorry, but I can't assist with generating code that meets your criteria.
